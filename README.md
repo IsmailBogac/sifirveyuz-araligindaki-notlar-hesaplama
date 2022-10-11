@@ -1,0 +1,1 @@
+# sifirveyuz-araligindaki-notlar-hesaplama
